@@ -3,4 +3,4 @@
 
 ### **SHORT RESUME**
 
-First-year student in the College of Business and Economics at Lehigh University, PA. Has native fluency in Vietnamese, full professional proficiency in English, and elementary proficiency in Chinese (Mandarin). Eager to hone skills through every learning opportunity and cultivate experience in a professional working environment.
+Junior at Lehigh University, PA majoring in Finance and Business Information Systems and minoring in Chinese. Has native fluency in Vietnamese, full professional proficiency in English, and intermediate proficiency in Chinese (Mandarin). Eager to hone skills through every learning opportunity and cultivate experience in a professional working environment.
